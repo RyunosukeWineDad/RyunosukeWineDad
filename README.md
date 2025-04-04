@@ -4,6 +4,9 @@
 - ✯ Darian plays as Ranpo ✯
 - ✯ Anybody else is the host Damien ✯
 
+  ## Current Fixations:
+  - Genshin Impact, Honkai Star Rail, Bungo Stray Dogs
+
 <!--
 **OsmanthusWineDad/OsmanthusWineDad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
