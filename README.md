@@ -8,8 +8,10 @@
   ## Current Fixations:
   - Genshin Impact, Honkai Star Rail, Bungo Stray Dogs
  
-    ##
-
+    ## DNI
+    - "Haha Funnee Guys" or people who only ever joke, I genuinely dont know how to interact with you
+    - Kaeluc Shippers (I follow the English GI version so seeing them shipped is a no go)
+    - If you dislike my behaviour/what I have listed, for both of our mental sake
 <!--
 **OsmanthusWineDad/OsmanthusWineDad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
