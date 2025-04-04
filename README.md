@@ -3,9 +3,12 @@
 - ✯ Morax plays a Faceless Ayato ✯
 - ✯ Darian plays as Ranpo ✯
 - ✯ Anybody else is the host Damien ✯
+- ❣ All of us are fine with interacting/chatting ❣
 
   ## Current Fixations:
   - Genshin Impact, Honkai Star Rail, Bungo Stray Dogs
+ 
+    ##
 
 <!--
 **OsmanthusWineDad/OsmanthusWineDad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
