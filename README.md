@@ -1,4 +1,5 @@
- <p align="center"> ## System Info
+ <p align="center"> 
+  ## System Info
 - ✯ Only two alters play Pony Town ✯
 - ✯ Morax plays a Faceless Ayato ✯
 - ✯ Darian plays as Ranpo ✯
