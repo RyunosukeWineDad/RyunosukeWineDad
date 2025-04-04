@@ -5,7 +5,7 @@
 - ✯ Anybody else is the host Damien ✯
 - ❣ All of us are fine with interacting/chatting ❣
 
--     ## DNI
+   ## DNI
     - "Haha Funnee Guys" or people who only ever joke, I genuinely dont know how to interact with you
     - Kaeluc Shippers (I follow the English GI version so seeing them shipped is a no go)
     - If you dislike my behaviour/what I have listed, for both of our mental sake
