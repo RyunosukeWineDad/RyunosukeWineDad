@@ -1,8 +1,8 @@
 ## System Info
--- ✯ Only two alters play Pony Town ✯
--- ✯ Morax plays a Faceless Ayato ✯
--- ✯ Darian plays as Ranpo ✯
--- ✯ Anybody else is the host Damien ✯
+- ✯ Only two alters play Pony Town ✯
+- ✯ Morax plays a Faceless Ayato ✯
+- ✯ Darian plays as Ranpo ✯
+- ✯ Anybody else is the host Damien ✯
 
 <!--
 **OsmanthusWineDad/OsmanthusWineDad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
