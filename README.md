@@ -1,5 +1,4 @@
- <p align="center"> 
-  ## System Info
+## System Info
 - ✯ Only two alters play Pony Town ✯
 - ✯ Morax plays a Faceless Ayato ✯
 - ✯ Darian plays as Ranpo ✯
@@ -17,7 +16,7 @@
   - ∘ Genshin Impact ∘ Honkai Star Rail ∘ Bungo Stray Dogs ∘
  
   - **Thank you for reading!!**
-    <img src="https://c.tenor.com/ob71uYvN2bgAAAAC/tenor.gif" /> </p>
+    <p align="center"> <img src="https://c.tenor.com/ob71uYvN2bgAAAAC/tenor.gif" /> </p>
 <!--
 **OsmanthusWineDad/OsmanthusWineDad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
