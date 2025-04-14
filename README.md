@@ -2,7 +2,7 @@
 <p align="center"> ⟾System Info⟽</p>
 <p align="center"> ∘ Only two alters play Pony Town ∘</p>
 <p align="center"> ∘ Morax plays a Faceless Ayato ∘ </p>
-<p align="center"> ∘ Ranpo is literally Ranpo but goes by Edogawa instead of Ranpo ∘</p>
+<p align="center"> ∘ Ranpo is literally Ranpo but goes by Edogawa ∘</p>
 <p align="center"> ∘ Anybody else is the host Damien ∘</p>
 <p align="center"> ∘ ❣ All of us are fine with interacting/chatting ❣ ∘</p>
 
