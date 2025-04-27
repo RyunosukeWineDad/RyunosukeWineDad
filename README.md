@@ -1,6 +1,6 @@
 <p align="center">︵‿︵‿٠◦٠♡٠◦٠‿︵‿︵</p>
 <p align="center"> ⟾System Info⟽</p>
-<p align="center"> ∘ Only three alters play Pony Town ∘</p>
+<p align="center"> ∘ Three alters play Pony Town ∘</p>
 <p align="center"> ∘ Morax plays as Faceless Ayato ∘ </p>
 <p align="center"> ∘ Ranpo is literally Ranpo but goes by Edogawa ∘</p>
 <p align="center"> ∘ June plays as Jouno and is fine with being called Jouno ∘</p>
