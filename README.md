@@ -3,7 +3,7 @@
 <p align="center"> ∘ Three alters play Pony Town ∘</p>
 <p align="center"> ∘ Morax plays as Faceless Ayato ∘ </p>
 <p align="center"> ∘ Ranpo is literally Ranpo but goes by Edogawa ∘</p>
-<p align="center"> ∘ June plays as Jouno and is fine with being called Jouno ∘</p>
+<p align="center"> ∘ Jouno plays as Jouno ∘</p>
 <p align="center"> ∘ Anybody else is the host Damien ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
 <p align="center"> ∘ ❣ All of us are fine with interacting/chatting ❣ ∘</p>
