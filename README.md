@@ -17,7 +17,7 @@
 
 <p align="center">︵‿︵‿٠◦٠♡٠◦٠‿︵‿︵</p>
   <p align="center"> ⟾Current Fixations⟽</p>
-  <p align="center"> ∘ Genshin Impact ∘ Honkai Star Rail ∘ Bungo Stray Dogs & BSD: TotL ∘ DOOM: 2016, Eternal, Dark Ages ∘</p>
+  <p align="center"> ∘ Genshin Impact ∘ Honkai Star Rail ∘ Bungo Stray Dogs & BSD: TotL ∘ DOOM: 2016, Eternal, Dark Ages ∘ Dark Souls 1 & 3 ∘</p>
  
 <p align="center"> <img src="https://c.tenor.com/3pDIMggI0jAAAAAd/tenor.gif" /> </p>
 <p align="center">  ∘ Thank you for reading!! ∘</p>
