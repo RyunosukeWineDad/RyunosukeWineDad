@@ -15,8 +15,9 @@
    <p align="center">  ∘ "Haha Funnee Guys" or people who only ever joke ➤ I genuinely dont know how to interact with you ∘</p>
    <p align="center"> ∘ If you use any slurs even in a friendly context ➤ Just makes me really uncomfortable ∘</p>
    <p align="center"> ∘ Kaeluc Shippers ➤ I follow the English GI version so seeing them shipped is a no go ∘</p>
+   <p align="center"> ∘ When listed, LISTEN TO THE DNIUF ➤ The reason will be listed in name, but we dont want to do something wrong on accident ∘</p>
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
-    <p align="center"> ∘ When listed, LISTEN TO THE DNIUF ➤ The reason will be listed in name, but we dont want to do something wrong on accident ∘</p>
+    
 
 <p align="center">︵‿︵‿٠◦٠♡٠◦٠‿︵‿︵</p>
   <p align="center"> ⟾Current Fixations⟽</p>
