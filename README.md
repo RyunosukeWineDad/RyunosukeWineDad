@@ -1,6 +1,6 @@
 <p align="center">⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙</p>
 <p align="center"> ⭒☆━━━System Info━━━☆⭒</p>
-<p align="center">System name: Ryunosuke</p>
+<p align="center">Collective/System name: Ryunosuke</p>
 <p align="center"> ∘ Four alters play Pony Town ∘</p>
 <p align="center"> ∘ Morax plays as Faceless Ayato ∘ </p>
 <p align="center"> ∘ Ranpo is literally Ranpo but goes by Edogawa ∘</p>
