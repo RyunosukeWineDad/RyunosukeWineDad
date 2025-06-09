@@ -1,6 +1,5 @@
 <p align="center">⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙</p>
 <p align="center"> ⭒☆━━━System Info━━━☆⭒</p>
-<p align="center">⭒☆Collective/System name: Ryunosuke☆⭒</p>
 <p align="center"> ∘ Four alters play Pony Town ∘</p>
 <p align="center"> ∘ Morax plays as Faceless Ayato ∘ </p>
 <p align="center"> ∘ Ranpo is literally Ranpo but goes by Edogawa ∘</p>
@@ -10,6 +9,7 @@
 <p align="center"> ∘ Anybody else is the host A-Nox, yes you can just call me Nox ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
 <p align="center"> ∘ ❣ All of us are fine with interacting/chatting ❣ ∘</p>
+<p align="center">⭒☆Collective/System name: Ryunosuke☆⭒</p>
 
 
   <p align="center">  ⭒☆━━━DNI━━━☆⭒</p>
