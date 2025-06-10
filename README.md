@@ -1,3 +1,5 @@
+**<p align="center">**THIS IS MAINLY FOR PONY TOWN, DONT MIND THE TERMONOLOGY**</p>**
+
 <p align="center">⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙</p>
 <p align="center"> ⭒☆━━━System Info━━━☆⭒</p>
 <p align="center"> ∘ Four alters play Pony Town ∘</p>
