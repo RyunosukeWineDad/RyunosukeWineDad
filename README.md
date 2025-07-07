@@ -8,7 +8,7 @@
 <p align="center"> ∘ Jouno is Jouno ∘</p>
 <p align="center"> ∘ Yuan made his own skin, but DNI unless friend or party ∘</p>
 <p align="center"> ∘ If its an unlisted alt playing, the word 'alt' or 'alter' will be in the name (Theyre fine with being asked for their name) ∘</p>
-<p align="center"> ∘ Anybody else is the host A-Nox, yes you can just call me Nox ∘</p>
+<p align="center"> ∘ Anybody else is the host Nox ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
 <p align="center"> ∘ ❣ All of us are fine with interacting/chatting ❣ ∘</p>
 <p align="center">⭒☆Collective/System name: Ryunosuke☆⭒</p>
