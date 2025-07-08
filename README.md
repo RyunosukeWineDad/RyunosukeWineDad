@@ -20,7 +20,7 @@
 <p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
 <p align="center"> ∘ IWC those who are under 16 ∘</p>
 <p align="center"> ∘ Only very specific people are exempted to these things (You know who you are) ∘</p>
-<p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli and Izzy) ∘</p>
+<p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella, Starry) ∘</p>
 
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
