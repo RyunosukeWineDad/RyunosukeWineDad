@@ -28,4 +28,4 @@
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/4mauj18jOlUAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/-ZDjEu483FkAAAAC/tenor.gif" /> </p>
-	<ins><p align="center">∘Thank you for reading!!∘</p></ins>
+	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
