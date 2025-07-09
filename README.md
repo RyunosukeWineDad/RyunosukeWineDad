@@ -11,7 +11,7 @@
    <p align="center"> ∘ If you use any slurs even in a friendly context ➤ Just makes me really uncomfortable ∘</p>
    <p align="center"> ∘ Kaeluc Shippers ➤ I follow the English GI version so seeing them shipped is a no go ∘</p>
    <p align="center"> ∘ When listed, LISTEN TO THE DNIUF ➤ Im usually on the island at these times anyway ∘</p>
-   <p align="center"> ∘ People who dislike others with shared kins ➤ Y'all tend to kin some of the most popular characters then get jealous when others do as well...like..?? ∘</p>
+   <p align="center"> ∘ People who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
 
 **<p align="center">**⭒☆━━━BYI━━━☆⭒**</p>**
@@ -20,7 +20,7 @@
 <p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
 <p align="center"> ∘ IWC those who are under 16 ∘</p>
 <p align="center"> ∘ Only very specific people are exempted to these things (You know who you are) ∘</p>
-<p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella, Starry) ∘</p>
+<p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella) ∘</p>
 
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
