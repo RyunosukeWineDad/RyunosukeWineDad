@@ -11,7 +11,7 @@
    <p align="center"> ∘ If you use any slurs even in a friendly context ➤ Just makes me really uncomfortable ∘</p>
    <p align="center"> ∘ Kaeluc Shippers ➤ I follow the English GI version so seeing them shipped is a no go ∘</p>
    <p align="center"> ∘ When listed, LISTEN TO THE DNIUF ➤ Im usually on the island at these times anyway ∘</p>
-   <p align="center"> ∘ People who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
+   <p align="center"> ∘ Those who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
 
 **<p align="center">**⭒☆━━━BYI━━━☆⭒**</p>**
@@ -24,8 +24,9 @@
 
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
+<p align="center"> <img src="https://c.tenor.com/EKCBUYxrkJkAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/VwFujH9Hw7oAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>
-<p align="center"> <img src="https://c.tenor.com/4mauj18jOlUAAAAC/tenor.gif" /> </p>
+<p align="center"> <img src="https://c.tenor.com/aIfFE6HR4cgAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/-ZDjEu483FkAAAAC/tenor.gif" /> </p>
 	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
