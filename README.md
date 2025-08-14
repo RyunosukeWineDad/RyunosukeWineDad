@@ -19,6 +19,7 @@
 <p align="center"> ∘ Often not sober, but it will be in my name & I'll be on island ∘</p>
 <p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
 <p align="center"> ∘ IWC those who are under 16 ∘</p>
+<p align="center"> ∘ I will not Online/E Date ∘ </p>
 <p align="center"> ∘ Only very specific people are exempted to these things (You know who you are) ∘</p>
 <p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella) ∘</p>
 
