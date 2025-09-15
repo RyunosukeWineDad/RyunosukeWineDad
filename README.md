@@ -28,7 +28,4 @@
   <p align="center"> <img src="https://c.tenor.com/xEGoUkcOurIAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/EKCBUYxrkJkAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/VwFujH9Hw7oAAAAC/tenor.gif" /> </p>
-<p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>
-<p align="center"> <img src="https://c.tenor.com/aIfFE6HR4cgAAAAC/tenor.gif" /> </p>
-<p align="center"> <img src="https://c.tenor.com/-ZDjEu483FkAAAAC/tenor.gif" /> </p>
-	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
+<p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
