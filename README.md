@@ -24,7 +24,9 @@
 <p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella) ∘</p>
 
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
+ <p align="center"> <img src="https://c.tenor.com/dTS1OJSM7p4AAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
+  <p align="center"> <img src="https://c.tenor.com/Etam9HEXa70AAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/xEGoUkcOurIAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/EKCBUYxrkJkAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/VwFujH9Hw7oAAAAC/tenor.gif" /> </p>
