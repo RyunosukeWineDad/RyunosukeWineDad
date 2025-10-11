@@ -24,10 +24,10 @@
 <p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella) ∘</p>
 
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
+  <p align="center"> <img src="https://c.tenor.com/wruP9O-pFCoAAAAd/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/dTS1OJSM7p4AAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/4knasADF0pIAAAAd/tenor.gif"/> </p>
-  <p align="center"> <img src="https://c.tenor.com/xEGoUkcOurIAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/EKCBUYxrkJkAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/VwFujH9Hw7oAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
