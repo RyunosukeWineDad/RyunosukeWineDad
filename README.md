@@ -31,3 +31,6 @@
 <p align="center"> <img src="https://c.tenor.com/EKCBUYxrkJkAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/VwFujH9Hw7oAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
+
+<p align="center"> ⭒☆━━━Kin name list in order━━━☆⭒</p>
+<p align="center">∘ Vigilante 《Peacemaker》∘ Bigby Wolf 《Wolf Among Us》∘ Edgar Allen Poe 《Bungo Stray Dogs》∘ Arthur Nightingale 《Warframe 1999》∘ Simon "Ghost" Riley 《Call of Duty: Modern Warfare》∘ Anaxagoras 《Honkai Star Rail》∘ Dr. Veritas Ratio 《Honkai Star Rail》∘</p>
