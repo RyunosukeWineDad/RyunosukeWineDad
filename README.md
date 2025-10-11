@@ -21,7 +21,6 @@
 <p align="center"> ∘ IWC those who are under 16 ∘</p>
 <p align="center"> ∘ I will not Online/E Date ∘ </p>
 <p align="center"> ∘ Only very specific people are exempt to these things (You know who you are) ∘</p>
-<p align="center"> ∘ Those who look up to me/admire me for some reason, I/We will do anything for you (Ily platonically Rainy/Oli, Izzy/Bella) ∘</p>
 
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/wruP9O-pFCoAAAAd/tenor.gif" /> </p>
