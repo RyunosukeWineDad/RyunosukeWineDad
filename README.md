@@ -26,7 +26,7 @@
   **<p align="center">**⭒☆━━━"IRL" Kins━━━☆⭒**</p>**
  <p align="center"> <img src="https://c.tenor.com/dTS1OJSM7p4AAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
-  <p align="center"> <img src="https://c.tenor.com/4knasADF0pIAAAAC/tenor.gif" /> </p>
+  <p align="center"> <img src="https://c.tenor.com/4knasADF0pIAAAAd/tenor.gif"/> </p>
   <p align="center"> <img src="https://c.tenor.com/xEGoUkcOurIAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/EKCBUYxrkJkAAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/VwFujH9Hw7oAAAAC/tenor.gif" /> </p>
