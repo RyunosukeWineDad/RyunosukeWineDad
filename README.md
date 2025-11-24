@@ -21,7 +21,9 @@
 <p align="center"> ∘ IWC those who are under 16 ∘</p>
 <p align="center"> ∘ I will not Online/E Date ∘ </p>
 <p align="center"> ∘ Only very specific people are exempt to these things (You know who you are) ∘</p>
+<p align="center">⭒☆━━━»↠≈☆≈↞«━━━☆⭒</p>
 
+## **<p align="center">**!!WARNING GIF SPAM!!**</p>**
   **<p align="center">**⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/wruP9O-pFCoAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
