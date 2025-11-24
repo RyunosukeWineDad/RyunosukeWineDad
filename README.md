@@ -10,7 +10,7 @@
    <p align="center">  ∘ "Haha Funnee Guys" or people who only ever joke ➤ I genuinely dont know how to interact with you ∘</p>
    <p align="center"> ∘ If you use any slurs even in a friendly context ➤ Just makes me really uncomfortable ∘</p>
    <p align="center"> ∘ (IWC) Incest Ships ➤ Ill leave you be and stay out of it like a damn adult, you can still talk to me tho but I WILL NOT do that ship with you ∘</p>
-   <p align="center"> ∘ When listed, LISTEN TO THE DNIUF ➤ Im usually on the island at these times anyway ∘</p>
+   <p align="center"> ∘ When listed, LISTEN TO THE DNIUF ➤ I will get snippy with you if I dont just ignore ∘</p>
    <p align="center"> ∘ Those who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
 
