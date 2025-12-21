@@ -28,7 +28,7 @@
   <p align="center"> <img src="https://c.tenor.com/wruP9O-pFCoAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/TYraeFkQyXcAAAAC/tenor.gif" /> </p>
-   <p align="center"> <img src="https://c.tenor.com/HlBs2UsvLP0AAAAC/tenor.gif" /> </p>
+   <p align="center"> <img src="https://c.tenor.com/jlWUItyyN_oAAAAC/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/dTS1OJSM7p4AAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/rjpuJ4yyk0YAAAAd/tenor.gif" /> </p>
@@ -37,4 +37,4 @@
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
 
 <p align="center"> ⭒☆━━━"IRL" name list in order━━━☆⭒</p>
-<p align="center">∘ Vigilante《Peacemaker》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Sebastian Solace《Pressure》∘ Dr. Samuel Hayden《DOOM 2016》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ Wylder《Elden Ring: Nightreign》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
+<p align="center">∘ Vigilante《Peacemaker》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Sebastian Solace《Pressure》∘ Archangel Gabriel 《ULTRAKILL》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ Wylder《Elden Ring: Nightreign》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
