@@ -2,7 +2,7 @@
 <p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
 <p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
 <p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
-<p align="center"> ∘ No alt/syst tag? Its the host Gabriel (Nox if we're close) ∘</p>
+<p align="center"> ∘ No alt/syst tag? Its the host Гавриил aka Gabriel (Nox if we're close) ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
 <p align="center">⭒☆Collective/System name: Ryunosuke☆⭒</p>
 
