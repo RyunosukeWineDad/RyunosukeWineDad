@@ -30,7 +30,7 @@
   <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/TYraeFkQyXcAAAAC/tenor.gif" /> </p>
    <p align="center"> <img src="https://c.tenor.com/jlWUItyyN_oAAAAC/tenor.gif" /> </p>
- <p align="center"> <img src="https://c.tenor.com/dTS1OJSM7p4AAAAC/tenor.gif" /> </p>
+ <p align="center"> <img src="https://c.tenor.com/xzj-Brgt-5YAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/rjpuJ4yyk0YAAAAd/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/3s4kpLzeGhgAAAAd/tenor.gif" /> </p>
