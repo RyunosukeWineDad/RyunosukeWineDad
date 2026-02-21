@@ -16,7 +16,7 @@
 
 **<p align="center">**⭒☆━━━BYI━━━☆⭒**</p>**
 <p align="center"> ∘ I have severe trust issues and dont really get attached to people due to it ∘</p>
-<p align="center"> ∘ Often not sober, but it will be in my name ∘</p>
+<p align="center"> ∘ I do go online while not sober, but I will have it listed ∘</p>
 <p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
 <p align="center"> ∘ IWC those who are under 16 ∘</p>
 <p align="center"> ∘ I will not Online/E Date ∘ </p>
