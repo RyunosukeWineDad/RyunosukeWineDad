@@ -12,6 +12,7 @@
    <p align="center"> ∘ (IWC) Incest Ships ➤ Ill leave you be and stay out of it like a damn adult, can still talk to me but I WILL NOT do that ship ∘</p>
    <p align="center"> ∘ When in name, LISTEN TO THE DNIUF ➤ I will get snippy if I dont just ignore, theres a reason its in there ∘</p>
    <p align="center"> ∘ Those who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
+   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
 
 **<p align="center">**⭒☆━━━BYI━━━☆⭒**</p>**
