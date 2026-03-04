@@ -27,9 +27,8 @@
 ## **<p align="center">**!!WARNING GIF WALL!!**</p>**
   **<p align="center">**⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/vwwoWmxXtWsAAAAC/tenor.gif" /> </p>
-  <p align="center"> <img src="https://c.tenor.com/pN20LBOULcwAAAAC/tenor.gif" /> </p>
-  <p align="center"> <img src="https://c.tenor.com/RV7qOOtO0KMAAAAC/tenor.gif" /> </p>
-  <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
+  <p align="center"> <img src="https://c.tenor.com/pN20LBOULcwAAAAC/tenor.gif" /> </p> 
+ <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/TYraeFkQyXcAAAAC/tenor.gif" /> </p>
    <p align="center"> <img src="https://c.tenor.com/jlWUItyyN_oAAAAC/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/xzj-Brgt-5YAAAAd/tenor.gif" /> </p>
@@ -40,4 +39,4 @@
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
 
 <p align="center"> ⭒☆━━━"IRL" name list in order━━━☆⭒</p>
-<p align="center">∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ SoundWave《Transformers: G1》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Sebastian Solace《Pressure》∘ Archangel Gabriel 《ULTRAKILL》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
+<p align="center">∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Sebastian Solace《Pressure》∘ Archangel Gabriel 《ULTRAKILL》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
