@@ -21,7 +21,7 @@
 <p align="center"> ∘ I do go online while not sober, but I will have it listed ∘</p>
 <p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
 <p align="center"> ∘ I will not Online/E Date ∘ </p>
-<p align="center"> ∘ Only very specific people are exempt to these things (You know who you are) ∘</p>
+<p align="center"> ∘ Only very specific people are exempt to any of the above (You know who you are) ∘</p>
 <p align="center">⭒☆━━━»↠≈☆≈↞«━━━☆⭒</p>
 
 ## **<p align="center">**!!WARNING GIF WALL!!**</p>**
