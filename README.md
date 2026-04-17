@@ -27,6 +27,7 @@
 ## **<p align="center">**!!WARNING GIF WALL!!**</p>**
   **<p align="center">**⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒**</p>**
   <p align="center"> <img src="https://c.tenor.com/vwwoWmxXtWsAAAAC/tenor.gif" /> </p>
+  <p align="center"> <img src="https://c.tenor.com/9KsmOXrSR_gAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/hIU9v9jtN_8AAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/pN20LBOULcwAAAAC/tenor.gif" /> </p>
@@ -40,4 +41,4 @@
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" /> </p>	<ins><p align="center">💖∘Thank you for reading!!∘💖</p></ins>
 
 <p align="center"> ⭒☆━━━"IRL" name list in order━━━☆⭒</p>
-<p align="center">∘ Optimus Prime《Transformers Animated》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Wheeljack《Transformers Prime》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ Sebastian Solace《Pressure》∘ Archangel Gabriel 《ULTRAKILL》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
+<p align="center">∘ Optimus Prime《Transformers Animated》∘ Megatron《Transformers Earthspark》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Wheeljack《Transformers Prime》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ Sebastian Solace《Pressure》∘ Archangel Gabriel 《ULTRAKILL》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
