@@ -4,7 +4,6 @@
 <p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
 <p align="center"> ∘ No alt/syst tag? Its the host Orion ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
-<p align="center">⭒☆Collective/System name: Ryunosuke☆⭒</p>
 
   **<p align="center"> **⭒☆━━━DNI━━━☆⭒**</p>**
   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
