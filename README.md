@@ -1,11 +1,26 @@
-**<p align="center">**⭒☆━━━System Info━━━☆⭒**</p>**
+<div align="center">
+<details><summary>⭒☆━━━BYI━━━☆⭒</summary></p>
+<p align="center"> ∘ My name/identity changes a lot, I know, but you can always default to Ryuno ∘</p>
+<p align="center"> ∘ I have severe trust issues and dont really get attached to people due to it ∘</p>
+<p align="center"> ∘ I do go online while not sober, but I will have it listed ∘</p>
+<p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
+<p align="center"> ∘ I will not Online/E Date ∘ </p>
+<p align="center"> ∘ Only very specific people are exempt to anything I have stated (You know who you are) ∘</p>
+</details>
+</div>
+
+<div align="center">
+ <details><summary>⭒☆━━━System Info━━━☆⭒</summary></p>
 <p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
 <p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
 <p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
 <p align="center"> ∘ No alt/syst tag? Its the host Orion ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
+ </details>
+</div>
 
-  **<p align="center"> **⭒☆━━━DNI━━━☆⭒**</p>**
+  <div align="center">
+  <details><summary> ⭒☆━━━DNI━━━☆⭒</summary></p>
   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
    <p align="center">  ∘ "Haha Funnee Guys" or people who only ever joke ➤ I genuinely dont know how to interact with you ∘</p>
    <p align="center"> ∘ If you use any slurs even in a friendly context ➤ Just makes me really uncomfortable ∘</p>
@@ -13,18 +28,12 @@
    <p align="center"> ∘ When in name, LISTEN TO THE DNIUF ➤ I will get snippy if I dont just ignore, theres a reason its in there ∘</p>
    <p align="center"> ∘ Those who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
+   </details>
+   </div>
 
-**<p align="center">**⭒☆━━━BYI━━━☆⭒**</p>**
-<p align="center"> ∘ My name/identity changes a lot, I know, but you can always default to Ryuno ∘</p>
-<p align="center"> ∘ I have severe trust issues and dont really get attached to people due to it ∘</p>
-<p align="center"> ∘ I do go online while not sober, but I will have it listed ∘</p>
-<p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
-<p align="center"> ∘ I will not Online/E Date ∘ </p>
-<p align="center"> ∘ Only very specific people are exempt to any of the above (You know who you are) ∘</p>
-<p align="center">⭒☆━━━»↠≈☆≈↞«━━━☆⭒</p>
-
-## **<p align="center">**!!WARNING GIF WALL!!**</p>**
-  **<p align="center">**⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒**</p>**
+## **<p align="center">**!!WARNING GIF WALL BELOW!!**</p>**
+  <div align="center">
+   <details><summary>⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒</summary></p>
   <p align="center"> <img src="https://c.tenor.com/Q1RSRcLXbeMAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/vwwoWmxXtWsAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/9KsmOXrSR_gAAAAd/tenor.gif" /> </p>
@@ -44,3 +53,5 @@
 
 <p align="center"> ⭒☆━━━"IRL" name list in order━━━☆⭒</p>
 <p align="center">∘ Flash Vector《Metal Cardbots S》∘ Optimus Prime《Transformers Animated》∘ Megatron《Transformers Earthspark》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Blue Cop S《Metal Cardbots S》∘ Wheeljack《Transformers Prime》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Sebastian Solace《Pressure》∘ Archangel Gabriel 《ULTRAKILL》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
+</details>
+</div>
