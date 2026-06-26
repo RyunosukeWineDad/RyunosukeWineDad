@@ -35,7 +35,7 @@
    </div>
 
    <div align="center">
- <details><summary>⭒☆━━━System Info Pony Town Edition━━━☆⭒</summary></p>
+ <details><summary>⭒☆━━━System Info (Pony Town Edition)━━━☆⭒</summary></p>
 <p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
 <p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
 <p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
