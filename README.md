@@ -5,7 +5,7 @@
  <p align="center"> ∘ Fash Vector combined images by @MDo__0000 on X and edited by Yana on Pinterested ∘</p>
  <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest (Im not hunting down the source of every drawing in the collage but I do know some of them, bother me on my Ata if you do want the full list)∘</p>
  <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account (insta and x) ∘</p>
- <p align="center"> ∘ Halo Infinite by Jazz Jack on Pixiv and with or Jazz_Jack on X ∘</p>
+ <p align="center"> ∘ Halo Infinite by Jazz Jack on Pixiv or Jazz_Jack on X ∘</p>
  <p align="center"> ∘ Capitano by ch3rei on Instagram and was posted by the artist themself on Pinterest ∘</p>
  <p align="center"> ∘ Ghost and König by @hexiaolin_fox on X ∘</p>
  <p align="center"> ∘ D3rlord3 art Signature says Crenni but I havent been able to find the exact artist (Will look into it more) ∘</p>
