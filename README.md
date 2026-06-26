@@ -22,16 +22,6 @@
 </details>
 </div>
 
-<div align="center">
- <details><summary>⭒☆━━━System Info Pony Town Edition━━━☆⭒</summary></p>
-<p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
-<p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
-<p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
-<p align="center"> ∘ No alt/syst tag? Its the host Orion ∘</p>
-<p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
- </details>
-</div>
-
   <div align="center">
   <details><summary> ⭒☆━━━DNI━━━☆⭒</summary></p>
   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
@@ -43,6 +33,16 @@
    <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
    </details>
    </div>
+
+   <div align="center">
+ <details><summary>⭒☆━━━System Info Pony Town Edition━━━☆⭒</summary></p>
+<p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
+<p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
+<p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
+<p align="center"> ∘ No alt/syst tag? Its the host Orion ∘</p>
+<p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
+ </details>
+</div>
    <p align="center">⭒☆━━━⋆⋅☆⋅⋆━━━☆⭒</p>
 
 
