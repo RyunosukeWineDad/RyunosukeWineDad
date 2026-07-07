@@ -29,8 +29,8 @@
   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
    <p align="center">  ∘ "Haha Funnee Guys" or people who only ever joke ➤ I genuinely dont know how to interact with you ∘</p>
    <p align="center"> ∘ Anybody in purity culture ➤ Again, Ill do me you do you I genuinley dont care ∘</p>
-   <p align="center"> ∘ Those who "character claim/non sharing" in yume or kin ➤ You dont own them, and more often than not its the most popular character in the fandom ∘</p>
-   <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ Im not going to filter myself for you, just block me ∘</p>
+   <p align="center"> ∘ Those who "character claim/non sharing" in yume or kin ➤ If youre so unstable that youre actually getting jealous over somebody else enjoying a fictional character, you can kindly go outside and take a breath of fresh air ∘</p>
+   <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ Im not going to filter myself for you, the block button is free ∘</p>
    </details>
    </div>
 
