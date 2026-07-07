@@ -15,10 +15,10 @@
 <div align="center">
 <details><summary>⭒☆━━━BYI━━━☆⭒</summary></p>
 <p align="center"> ∘ My name/identity changes a lot, I know, but you can always default to Ryuno ∘</p>
-<p align="center"> ∘ I have severe trust issues and dont really get attached to people due to it ∘</p>
-<p align="center"> ∘ I do go online while not sober, but I will have it listed ∘</p>
+<p align="center"> ∘ I keep people at arms length, dont take it personally ∘</p>
+ <p align="center"> ∘ Live and let live stan, Ill do me and you do you ∘</p>
+<p align="center"> ∘ I do go online while not sober but I will have it listed ∘</p>
 <p align="center"> ∘ Dont vent to me unless I say you can ∘</p>
-<p align="center"> ∘ I will not Online/E Date ∘ </p>
 <p align="center"> ∘ Only very specific people are exempt to anything I have stated (You know who you are) ∘</p>
 </details>
 </div>
@@ -27,11 +27,9 @@
   <details><summary> ⭒☆━━━DNI━━━☆⭒</summary></p>
   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
    <p align="center">  ∘ "Haha Funnee Guys" or people who only ever joke ➤ I genuinely dont know how to interact with you ∘</p>
-   <p align="center"> ∘ If you use any slurs even in a friendly context ➤ Just makes me really uncomfortable ∘</p>
-   <p align="center"> ∘ (IWC) Incest Ships ➤ Ill leave you be and stay out of it like a damn adult, can still talk to me but I WILL NOT do that ship ∘</p>
-   <p align="center"> ∘ When in name, LISTEN TO THE DNIUF ➤ I will get snippy if I dont just ignore, theres a reason its in there ∘</p>
-   <p align="center"> ∘ Those who dislike others with shared kins ➤ I get why, you dont control it, but still ∘</p>
-   <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ For both of our sake, Im not going to filter myself for you ∘</p>
+   <p align="center"> ∘ Anybody in purity culture ➤ Again, Ill do me you do you I genuinley dont care ∘</p>
+   <p align="center"> ∘ Those who "character claim/not sharing" in yume or kin ➤ You dont own them, and more often than not its the most popular character in the fandom ∘</p>
+   <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ Im not going to filter myself for you, just block me ∘</p>
    </details>
    </div>
 
@@ -39,7 +37,6 @@
  <details><summary>⭒☆━━━System Info (Pony Town Edition)━━━☆⭒</summary></p>
 <p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
 <p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
-<p align="center"> ∘ If we have 'DNI' or 'DNIUF' in the name PLEASE respect that, else you will be ignored ∘</p>
 <p align="center"> ∘ No alt/syst tag? Its the host Ivaan ∘</p>
 <p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
  </details>
