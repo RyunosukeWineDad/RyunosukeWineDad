@@ -3,7 +3,7 @@
 <details><summary>⭒☆━━━⋆⋅☆⋅⋆━━━☆⭒</summary>
 **<p align="center"> ☆ !!Banner Art Credits!! ☆</p>
  <p align="center"> ∘ Pfp: peluxid on Instagram ∘</p>**
- <p align="center"> ∘ Fash Vector combined images by @MDo__0000 on X and edited by Yana on Pinterest ∘</p>
+ <p align="center"> ∘ Flash Vector combined images by @MDo__0000 on X and edited by Yana on Pinterest ∘</p>
  <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest (Im not hunting down the source of every drawing in the collage but I do know some of them, bother me on my Ata if you do want the full list)∘</p>
  <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account (insta and x) ∘</p>
  <p align="center"> ∘ Halo Infinite by Jazz Jack on Pixiv or Jazz_Jack on X ∘</p>
