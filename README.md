@@ -9,7 +9,7 @@
  <p align="center"> ∘ d3rl0rd3 by u/Alive_Living6838 on Reddit ∘</p>
  <p align="center"> ∘ Capitano by ch3rei on Instagram and was posted by the artist themself on Pinterest ∘</p>
  <p align="center"> ∘ Ghost and König by @hexiaolin_fox on X ∘</p>
- <p align="center"> ∘ Brysko by kommandantpinks on X ∘</p>
+ <p align="center"> ∘ Brysko by kommandantpinks on X & tumblr ∘</p>
 </details>
 </div>
 <div align="center">
