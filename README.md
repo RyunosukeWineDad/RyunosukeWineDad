@@ -54,19 +54,19 @@
    <details><summary>⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒</summary></p>
   <p align="center"> <img src="https://c.tenor.com/Q1RSRcLXbeMAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/vwwoWmxXtWsAAAAC/tenor.gif" /> </p>
+  <p align="center"> <img src="https://c.tenor.com/3s4kpLzeGhgAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/9KsmOXrSR_gAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
-  <p align="center"> <img src="https://media1.tenor.com/m/3TkDaN54W4cAAAAC/metal-cardbot-mcb.gif" /> </p>
+  <p align="center"> <img src="https://media1.tenor.com/m/wjWYatqdiggAAAAC/metal-cardbot-mcb.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/pN20LBOULcwAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/RBp49HZ8vqQAAAAd/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/xzj-Brgt-5YAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/iAWg8bEAZb4AAAAC/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/rjpuJ4yyk0YAAAAd/tenor.gif" /> </p>
-<p align="center"> <img src="https://c.tenor.com/3s4kpLzeGhgAAAAd/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/nbnxXKP7IrMAAAAd/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" />
 
 <p align="center"> ⭒☆━━━"IRL" name list in order━━━☆⭒</p>
-<p align="center">∘ Flash Vector《Metal Cardbots S》∘ Optimus Prime《Transformers Animated》∘ Megatron《Transformers Earthspark》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Blue Cop W《Metal Cardbot W》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ IL Capitano《Genshin Impact》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
+<p align="center">∘ Flash Vector《Metal Cardbots S》∘ Optimus Prime《Transformers Animated》∘ IL Capitano《Genshin Impact》∘ Megatron《Transformers Earthspark》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Blue Cop W《Metal Cardbot W》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
 </details>
 </div>
