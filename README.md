@@ -53,7 +53,7 @@
   <div align="center">
    <details><summary>⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒</summary></p>
   <p align="center"> <img src="https://c.tenor.com/Q1RSRcLXbeMAAAAd/tenor.gif" /> </p>
-  <p align="center"> <img src="https://c.tenor.com/zDASa7f3WGgAAAAd/tenor.gif" /> </p>
+ <p align="center"> <img src="https://c.tenor.com/yx9mRxSBF1AAAAAd/tenor.gif"> </p>
   <p align="center"> <img src="https://c.tenor.com/vwwoWmxXtWsAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/3s4kpLzeGhgAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/9KsmOXrSR_gAAAAd/tenor.gif" /> </p>
