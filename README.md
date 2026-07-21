@@ -6,10 +6,10 @@
  <p align="center"> ∘ Flash Vector combined images by @MDo__0000 on X and edited by Yana on Pinterest ∘</p>
  <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest (Im not hunting down the source of every drawing in the collage but I do know some of them, bother me on my Ata if you do want the full list)∘</p>
  <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account (insta and x) ∘</p>
- <p align="center"> ∘ Halo Infinite by Jazz Jack on Pixiv or Jazz_Jack on X ∘</p>
+ <p align="center"> ∘ d3rl0rd3 by u/Alive_Living6838 on Reddit ∘</p>
  <p align="center"> ∘ Capitano by ch3rei on Instagram and was posted by the artist themself on Pinterest ∘</p>
  <p align="center"> ∘ Ghost and König by @hexiaolin_fox on X ∘</p>
- <p align="center"> ∘ D3rlord3 art Signature says Crenni but I havent been able to find the exact artist (Will look into it more) ∘</p>
+ <p align="center"> ∘ Brysko by kommandantpinks on X ∘</p>
 </details>
 </div>
 <div align="center">
@@ -46,7 +46,7 @@
 
 
 
-<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/485f01e9-8f75-4d90-8666-3e07d6183d11" />
+<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/402e1b80-45c3-43c5-95d3-0cb774c1785b" />
 
 ## **<p align="center">**!!WARNING GIF WALL BELOW!!**</p>**
 
