@@ -66,7 +66,7 @@
 <p align="center"> <img src="https://c.tenor.com/nbnxXKP7IrMAAAAd/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/ZU_MccYnuggAAAAC/tenor.gif" />
 
-<p align="center"> ⭒☆━━━"IRL" name list in order━━━☆⭒</p>
+<p align="center"> ⭒☆━━━IRL name list in order━━━☆⭒</p>
 <p align="center">∘ Flash Vector《Metal Cardbots S》∘ Optimus Prime《Transformers Animated》∘ IL Capitano《Genshin Impact》∘ Megatron《Transformers Earthspark》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Blue Cop W《Metal Cardbot W》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Edgar Allen Poe《Bungo Stray Dogs》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ John-117-Master Chief《Halo: 4 & Infinite》∘ Dr. Veritas Ratio《Honkai Star Rail》∘</p>
 </details>
 </div>
