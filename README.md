@@ -9,7 +9,7 @@
  <p align="center"> ∘ d3rl0rd3 by u/Alive_Living6838 on Reddit ∘</p>
  <p align="center"> ∘ Capitano by ch3rei on Instagram and was posted by the artist themself on Pinterest ∘</p>
  <p align="center"> ∘ Ghost and König by @hexiaolin_fox on X ∘</p>
- <p align="center"> ∘ Brysko by kommandantpinks on X & tumblr ∘</p>
+ <p align="center"> ∘ Miguel by samdoesarts on TikTok ∘</p>
 </details>
 </div>
 <div align="center">
@@ -28,9 +28,9 @@
   <details><summary> ⭒☆━━━DNI━━━☆⭒</summary></p>
   <p align="center"> ∘ If you are under 16 ➤ Im tired, I am not your people ∘</p>
    <p align="center">  ∘ "Haha Funnee Guys" or people who only ever joke ➤ I genuinely dont know how to interact with you ∘</p>
-   <p align="center"> ∘ Anybody in purity culture ➤ Again, Ill do me you do you I genuinley dont care ∘</p>
+   <p align="center"> ∘ Anybody in purity culture ➤ Again, Ill do me you do you I genuinely dont care ∘</p>
    <p align="center"> ∘ Those who "character claim/non sharing" in yume or kin ➤ If youre so unstable that youre actually getting jealous over somebody else enjoying a fictional character, you can kindly go outside and take a breath of fresh air ∘</p>
-   <p align="center"> ∘ If you dislike my behaviour/what I have listed ➤ Im not going to filter myself for you, the block button is free ∘</p>
+   <p align="center"> ∘ If you dislike my behavior/what I have listed ➤ Im not going to filter myself for you, the block button is free ∘</p>
    </details>
    </div>
 
@@ -39,14 +39,14 @@
 <p align="center"> ∘ Alters also play Pony Town, the word 'alt' or 'syst' will be in the name ∘</p>
 <p align="center"> ∘ Feel free to int with them unless specified otherwise ∘</p>
 <p align="center"> ∘ No alt/syst tag? Its the host Ivaan ∘</p>
-<p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinley helps us calm down ∘</p>
+<p align="center"> ∘ We will cuddle any 'c+h' people when we're upset/struggling, it genuinely helps us calm down ∘</p>
  </details>
 </div>
    <p align="center">⭒☆━━━⋆⋅☆⋅⋆━━━☆⭒</p>
 
 
+<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/5512fb2c-6c6a-4008-8d2c-d9c2870dc7ee" />
 
-<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/402e1b80-45c3-43c5-95d3-0cb774c1785b" />
 
 ## **<p align="center">**!!WARNING GIF WALL BELOW!!**</p>**
 
