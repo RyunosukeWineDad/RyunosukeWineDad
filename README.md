@@ -51,7 +51,7 @@
 ## **<p align="center">**!!WARNING GIF WALL BELOW!!**</p>**
 
   <div align="center">
-   <details><summary>⭒☆━━━(Delusion sourced) IRL Kins━━━☆⭒</summary></p>
+   <details><summary>⭒☆━━━Delusion Sourced FictionKins━━━☆⭒</summary></p>
   <p align="center"> <img src="https://media1.tenor.com/m/wjWYatqdiggAAAAC/metal-cardbot-mcb.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/Q1RSRcLXbeMAAAAd/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/2JzyFVqfVXEAAAAd/tenor.gif" /> </p>
