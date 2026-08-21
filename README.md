@@ -15,7 +15,7 @@
 <div align="center">
 <details><summary>⭒☆━━━BYI━━━☆⭒</summary></p>
  <p align="center"> ☆ !!Believe it or not I AM Friendly!! ☆</p>
-<p align="center"> ∘ My name/identity changes a lot but you can always default to Ryuno ∘</p>
+<p align="center"> ∘ My name/identity changes a lot but you can always default to Noir ∘</p>
 <p align="center"> ∘ I keep people at arms length, dont take it personally ∘</p>
  <p align="center"> ∘ Live and let live stan, Ill do me and you do you ∘</p>
 <p align="center"> ∘ I do go online while not sober but I will have it listed ∘</p>
