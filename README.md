@@ -52,6 +52,7 @@
 
   <div align="center">
    <details><summary>⭒☆━━━Delusion Sourced FictionKins━━━☆⭒</summary></p>
+  <p align="center"> <img src="https://c.tenor.com/uDEv39Pk6ZkAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://media1.tenor.com/m/wjWYatqdiggAAAAC/metal-cardbot-mcb.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/Q1RSRcLXbeMAAAAd/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/2JzyFVqfVXEAAAAd/tenor.gif" /> </p>
@@ -65,6 +66,6 @@
 <p align="center"> <img src="https://c.tenor.com/nbnxXKP7IrMAAAAd/tenor.gif" /> </p>
 
 <p align="center"> ⭒☆━━━IRL name list in order━━━☆⭒</p>
-<p align="center">∘ Blue Cop W《Metal Cardbots W》∘ Flash Vector《Metal Cardbot S》∘ Miguel O'Hara《Across The Spiderverse》∘ IL Capitano《Genshin Impact》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ John-117-Master Chief《Halo: 4 & Infinite》∘</p>
+<p align="center">∘ Heatwave《Transformers Rescue Bots》∘ Blue Cop W《Metal Cardbots W》∘ Flash Vector《Metal Cardbot S》∘ Miguel O'Hara《Across The Spiderverse》∘ IL Capitano《Genshin Impact》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ John-117-Master Chief《Halo: 4 & Infinite》∘</p>
 </details>
 </div>
