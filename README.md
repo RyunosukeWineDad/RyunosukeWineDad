@@ -4,8 +4,8 @@
 **<p align="center"> ☆ !!Banner Art Credits!! ☆</p>
  <p align="center"> ∘ Pfp: @one1plz-fabii on Tumblr ∘</p>**
  <p align="center"> ∘ Flash Vector edited by Yana on Pinterest ∘</p>
- <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest (Im not hunting down the source of every drawing in the collage but I do know some of them, bother me on my Ata if you do want the full list)∘</p>
- <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account (insta and x) ∘</p>
+ <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest∘</p>
+ <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account, insta and x ∘</p>
  <p align="center"> ∘ d3rl0rd3 by u/Alive_Living6838 on Reddit ∘</p>
  <p align="center"> ∘ Capitano by ch3rei on Instagram and was posted by the artist themself on Pinterest ∘</p>
  <p align="center"> ∘ Ghost and König by @hexiaolin_fox on X ∘</p>
