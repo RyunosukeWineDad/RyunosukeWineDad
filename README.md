@@ -1,10 +1,11 @@
-<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/7a286066-a51d-4053-a709-c5becdbd18b4" />
+<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/c6276662-02c6-4272-a2f3-4c33646b37f1" />
 <div align="center">
 <details><summary>⭒☆━━━⋆⋅☆⋅⋆━━━☆⭒</summary>
 **<p align="center"> ☆ !!Banner Art Credits!! ☆</p>
  <p align="center"> ∘ Pfp: @one1plz-fabii on Tumblr ∘</p>**
- <p align="center"> ∘ Flash Vector edited by Yana on Pinterest ∘</p>
  <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest∘</p>
+ <p align="center"> ∘ Heatwave by @sandlake on Tumblr ∘</p>
+ <p align="center"> ∘ Blue Cop W by @Maeng_5307 on X ∘</p>
  <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account, insta and x ∘</p>
  <p align="center"> ∘ d3rl0rd3 by u/Alive_Living6838 on Reddit ∘</p>
  <p align="center"> ∘ Capitano by ch3rei on Instagram and was posted by the artist themself on Pinterest ∘</p>
@@ -54,7 +55,6 @@
    <details><summary>⭒☆━━━Delusion Sourced FictionKins━━━☆⭒</summary></p>
   <p align="center"> <img src="https://c.tenor.com/uDEv39Pk6ZkAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://media1.tenor.com/m/wjWYatqdiggAAAAC/metal-cardbot-mcb.gif" /> </p>
-  <p align="center"> <img src="https://c.tenor.com/Q1RSRcLXbeMAAAAd/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/2JzyFVqfVXEAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/3s4kpLzeGhgAAAAd/tenor.gif" /> </p>
       <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
@@ -63,9 +63,8 @@
   <p align="center"> <img src="https://c.tenor.com/RBp49HZ8vqQAAAAd/tenor.gif" /> </p>
  <p align="center"> <img src="https://c.tenor.com/xzj-Brgt-5YAAAAd/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/rjpuJ4yyk0YAAAAd/tenor.gif" /> </p>
-<p align="center"> <img src="https://c.tenor.com/nbnxXKP7IrMAAAAd/tenor.gif" /> </p>
 
 <p align="center"> ⭒☆━━━IRL name list in order━━━☆⭒</p>
-<p align="center">∘ Heatwave《Transformers Rescue Bots》∘ Blue Cop W《Metal Cardbots W》∘ Flash Vector《Metal Cardbot S》∘ Miguel O'Hara《Across The Spiderverse》∘ IL Capitano《Genshin Impact》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘ John-117-Master Chief《Halo: 4 & Infinite》∘</p>
+<p align="center">∘ Heatwave《Transformers Rescue Bots》∘ Blue Cop W《Metal Cardbots W》∘ Miguel O'Hara《Across The Spiderverse》∘ IL Capitano《Genshin Impact》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘</p>
 </details>
 </div>
