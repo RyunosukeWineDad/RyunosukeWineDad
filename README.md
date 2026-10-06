@@ -1,9 +1,9 @@
-<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/c6276662-02c6-4272-a2f3-4c33646b37f1" />
+<img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/c2c54a07-2d1d-41ff-b94d-ef9be18d7dfb" />
 <div align="center">
 <details><summary>⭒☆━━━⋆⋅☆⋅⋆━━━☆⭒</summary>
 **<p align="center"> ☆ !!Banner Art Credits!! ☆</p>
  <p align="center"> ∘ Pfp: @one1plz-fabii on Tumblr ∘</p>**
- <p align="center"> ∘ TFA Optimus collage made by Cloudy on Pinterest∘</p>
+ <p align="center"> ∘ Knight Optimus by snowiiarts on bluesky and insta ∘</p>
  <p align="center"> ∘ Heatwave by @sandlake on Tumblr ∘</p>
  <p align="center"> ∘ Blue Cop W by @Maeng_5307 on X ∘</p>
  <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account, insta and x ∘</p>
@@ -58,13 +58,12 @@
  <p align="center"> <img src="https://c.tenor.com/2JzyFVqfVXEAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/3s4kpLzeGhgAAAAd/tenor.gif" /> </p>
       <p align="center"> <img src="https://c.tenor.com/8I6dbnrwYoAAAAAC/tenor.gif" /> </p>
-    <p align="center"> <img src="https://c.tenor.com/vwwoWmxXtWsAAAAC/tenor.gif" /> </p>
+    <p align="center"> <img src="https://c.tenor.com/KwUCErAcMKMAAAAd/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/pN20LBOULcwAAAAC/tenor.gif" /> </p>
   <p align="center"> <img src="https://c.tenor.com/RBp49HZ8vqQAAAAd/tenor.gif" /> </p>
- <p align="center"> <img src="https://c.tenor.com/xzj-Brgt-5YAAAAd/tenor.gif" /> </p>
 <p align="center"> <img src="https://c.tenor.com/rjpuJ4yyk0YAAAAd/tenor.gif" /> </p>
 
 <p align="center"> ⭒☆━━━IRL name list in order━━━☆⭒</p>
-<p align="center">∘ Heatwave《Transformers Rescue Bots》∘ Blue Cop W《Metal Cardbots W》∘ Miguel O'Hara《Across The Spiderverse》∘ IL Capitano《Genshin Impact》∘ Silent Salt Cookie《Cookie Run Kingdom》∘ Optimus Prime《Transformers Animated》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Bigby Wolf《Wolf Among Us》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘</p>
+<p align="center">∘ Heatwave《Transformers Rescue Bots》∘ Blue Cop W《Metal Cardbots W》∘ Miguel O'Hara《Across The Spiderverse》∘ IL Capitano《Genshin Impact》∘ Silent Salt Cookie《Cookie Run Kingdom》∘Knight Optimus Prime《Transformers The Last Knight》∘ d3rlord3《Searching For A World That Doesnt Exist》∘ König《Call of Duty: Modern Warfare II》∘ Simon "Ghost" Riley《Call of Duty: Modern Warfare》∘</p>
 </details>
 </div>
