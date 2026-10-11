@@ -3,7 +3,7 @@
 <details><summary>⭒☆━━━⋆⋅☆⋅⋆━━━☆⭒</summary>
 **<p align="center"> ☆ !!Banner Art Credits!! ☆</p>
  <p align="center"> ∘ Pfp: @one1plz-fabii on Tumblr ∘</p>**
- <p align="center"> ∘ Knight Optimus by snowiiarts on bluesky and insta ∘</p>
+ <p align="center"> ∘ Bay Optimus by snowiiarts on bluesky and insta ∘</p>
  <p align="center"> ∘ Heatwave by @sandlake on Tumblr ∘</p>
  <p align="center"> ∘ Blue Cop W by @Maeng_5307 on X ∘</p>
  <p align="center"> ∘ Silent Salt meme by the Official Cookie Run Kingdom Account, insta and x ∘</p>
